@@ -12,5 +12,6 @@ Saya Dicki Fathurohman [2103842] mengerjakan LATIHAN (LP) 11 DPBO 2023 dalam mat
 ## Dokumentasi
 ![image](https://github.com/dickifathurohman/LP11DPBO2023C2/assets/100754802/37894c94-5a58-4984-a129-77e9a89ec6a4)
 ![image](https://github.com/dickifathurohman/LP11DPBO2023C2/assets/100754802/de94e81a-d0c4-4020-89dd-d0bc3879e23e)
-https://github.com/dickifathurohman/LP11DPBO2023C2/assets/100754802/539b627f-0cab-487e-ac4d-c60539dba395
+
+![video](https://github.com/dickifathurohman/LP11DPBO2023C2/assets/100754802/539b627f-0cab-487e-ac4d-c60539dba395)
 
